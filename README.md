@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ShkaibAfzal
+- 👀 I’m interested in Digital Leads
+- 🌱 I’m currently learning Digital Marketing & Business Development
+- 💞️ I’m looking to collaborate on Lead Generation, Media Marketing & Search Engine Optimization
+- 📫 Reach me freely for any collaboration
